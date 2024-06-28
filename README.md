@@ -5,3 +5,4 @@
 - 學歷［輔仁大學經濟學系］（https://www.economics.fju.edu.tw/）
 - 興趣：旅行、**打籃球**
 <hr>
+！[](巧克力.jpg)
